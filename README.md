@@ -1,0 +1,7 @@
+ (POST) ![Screenshot (228)](https://github.com/user-attachments/assets/2610229a-6940-46ef-a97b-3b7cb973041a)
+(GET) (![Screenshot (228)](https://github.com/user-attachments/assets/7687ed5d-6479-4ff6-a7fb-0339af80b2c2)
+(Delete) ![Screenshot (229)](https://github.com/user-attachments/assets/e862b387-fbf1-416e-8cf7-e4d3b81b7ea8)
+(PUT) ![Screenshot (230)](https://github.com/user-attachments/assets/ec6648eb-fa7a-4fac-aeda-ebdddc596ec9)
+(Database) ![Screenshot (231)](https://github.com/user-attachments/assets/6f2e86de-cf7e-4ef7-b8e9-d48db62ccfa2)
+(Tampilan WEB) ![Screenshot (232)](https://github.com/user-attachments/assets/7f051658-06b6-4d0b-be64-5eb44518a629)
+(buah nanas buah kedongdong lulusin paw dong xixixi ^^)
